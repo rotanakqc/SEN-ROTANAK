@@ -1,1 +1,1 @@
-# Hey, guy. I'm Rotanak 
+# Hello guys I'm Rotanak 
